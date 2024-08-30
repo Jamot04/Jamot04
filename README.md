@@ -2,7 +2,7 @@
 - 👀 I’m interested in data science, data analysis and statistics
 - 🌱 I’m currently learning data analysis
 - 💞️ I’m looking to collaborate on data analysis and programmation projects
-- 📫 How to reach me jamotkassa@gmail.com
+- 📫 How to reach me jamotkassa@gmail.com or whatsapp +229 68098936
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
